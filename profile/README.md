@@ -4,7 +4,7 @@
 
 👉👉 **[55 Club Sign-Up](https://damangames.bet/#/register?invitationCode=1551211827131)**
 
-👉👉 **[55 Club Official Website](www.damanclub.games)**
+👉👉 **[55 Club Official Website](https://damanclub.games)**
 
 👉👉 **[55 Club App Download](https://damanclub.games/daman-games-invite-code/)**
 
