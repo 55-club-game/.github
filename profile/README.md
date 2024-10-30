@@ -30,6 +30,18 @@ Playing games at 55 club required to have some money in your 55 club wallet so t
 
 After adding money play any game of your choice and bet some money. When you win in 55 clun, you should withdraw those winnings in your account. For that add one bank account in you account. While entering the details of the bank please be careful. If you commit any mistake in entering detail, it will be very much difficult for you to change it and you won't be able to withdraw your winnings. 
 
+**Similar Gaming App**
+
+[TC Lottery App](https://github.com/TC-Lottery-Join-Now)
+
+[Big Daddy Game ](https://github.com/Big-Daddy-Game-Download-2024)
+
+[Daman Games](https://github.com/Daman-Games-App) 
+
+[Big Mumbai Game](https://github.com/Big-Mumbai-Games)
+
+[Fastwin App](https://github.com/Fastwin-new-app)
+
 ## 55 Club Hack Mod APK
 
 A "55 Club mod APK" is an altered version of the Daman Games app. APK stands for the Android application file format used for distributing and installing apps on Android devices. Mod APKs are modified versions of original apps, created by third parties to unlock extra features, functionalities, or benefits that aren’t available in the official version from the Google Play Store.
